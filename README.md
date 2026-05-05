@@ -1,1 +1,0 @@
-# SmartG-ID
